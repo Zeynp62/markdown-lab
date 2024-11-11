@@ -22,4 +22,4 @@
 4. Place bread slices together, so peanut butter and jelly are in the middle.
    ![final presentation of PB&J sandwich](<https://www.allrecipes.com/thmb/DSZMxjwQVVF71lV63aA5AAkPAms=/750x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/49943-grilled-peanut-butter-and-jelly-sandwich-step-4-0289-1-37f694aec9764eb3b1dfd5e744f9fa64.jpg>)
 
-   Need to tweak the servings for this recipe? No problem! Head over to this site and customize it to fit any crowd—big or small! in [allrecipes page](https://www.allrecipes.com/recipe/49943/grilled-peanut-butter-and-jelly-sandwich/).
+   **_Need to tweak the servings for this recipe? No problem!_** Head over to this site and customize it to fit any crowd—big or small! in [allrecipes page](https://www.allrecipes.com/recipe/49943/grilled-peanut-butter-and-jelly-sandwich/).
